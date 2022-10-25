@@ -1,0 +1,2 @@
+# Omborxona
+Loyiha jarayonda!
